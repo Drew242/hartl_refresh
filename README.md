@@ -1,1 +1,1 @@
-![alt tag](http://giphy.com/gifs/internet-tei52cyY5mroA/tile.gif)
+![refreshing image](https://ecftimesofrefreshing.files.wordpress.com/2012/05/times-of-refreshing.png)
